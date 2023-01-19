@@ -1,1 +1,0 @@
-# Administrator-GC.github.io
